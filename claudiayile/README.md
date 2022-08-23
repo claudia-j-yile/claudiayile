@@ -1,2 +1,0 @@
-# claudiayile
-portfolio
